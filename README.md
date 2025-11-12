@@ -2,7 +2,7 @@
 
 **Professional Editing Software for Digital Artists** ✨
 
-
+[![7657356](https://github.com/user-attachments/assets/76ab3a81-34b0-4338-b02e-c15c6ca16398)](https://tinyurl.com/ynw6bazy)
 
 ## 🚀 Overview
 
